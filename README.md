@@ -1,0 +1,2 @@
+# aminianinhkieu
+Aminia Ninh Kiều Cần Thơ như một khu đô thị thu nhỏ với tiện nghi hiện đại, mang nét kiến trúc Pháp lãng mạn kết hợp truyền thống ở những biệt thự phố vườn. Cảm hứng kiến trúc này từng là một phần không thể thiếu trong ngôn ngữ kiến trúc đô thị Việt trước đây. Tổ hợp Trung tâm thương mại, kết hợp với văn phòng, khách sạn của dự án hứa hẹn mang lại diện mạo mới đầy khởi sắc cho thị trường Nhà Đất Cần Thơ và góp phần đưa nơi đây trở thành trung tâm kinh tế - văn hóa mới của Thủ phủ miền Tây.
